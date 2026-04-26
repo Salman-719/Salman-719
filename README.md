@@ -17,4 +17,4 @@ I build practical AI-powered tools and cloud-ready applications with a focus on 
 
 ## Connect
 - LinkedIn: https://www.linkedin.com/in/ali-salman-48a8a22b6/
-- Email: aas145@mail.aub.edu
+- Email: ali-salman06@outlook.com
